@@ -24,4 +24,4 @@
 平台每天都会更新最新的日本AV影片。我们会定期增加新影片，确保用户第一时间能看到最热门、最受欢迎的内容。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/hh54053/36523 ）</span>
